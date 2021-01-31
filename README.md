@@ -7,3 +7,6 @@ We have published the game on Steam and Discord
 Here are links to all of the platfroms we have the game on : (We will be adding them soon!)
 
 Visit our Discord server : (Coming Soon!)
+
+
+Here is our website : Zoneofwar.com
